@@ -1,0 +1,1 @@
+Franko readme, fetch gyakorlasara
